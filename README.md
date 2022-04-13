@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @laurinepro
 - 👀 I’m interested in design, graphisme, marketing
 - 🌱 I’m currently learning luxury management and marketing
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to have canvapro 
 - 📫 How to reach me laurine.liscoet@gmail.com
 
 <!---
